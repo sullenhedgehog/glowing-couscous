@@ -64,6 +64,7 @@ If you don't think the police in the US is an out-of-control terrorist organizat
 - [Minneapolis police threaten and attack a news crew](https://www.youtube.com/watch?v=NN8ISwuiX68&amp;feature=youtu.be)
 - [State senator attacked in the Bronx](http://bronx.news12.com/story/42192118/state-senator-says-he-was-pepper-sprayed-handcuffed-at-barclays-protest)
 - [cops stealing and destroying water for peaceful protestors in Louisville](https://v.redd.it/v8x8isj0xz151)
+- [Atlanta cops target black couple, break window, slash tires, tase and drag from car](https://twitter.com/imactuallynina/status/1266912627193774080)
 
 ### Without location info
 
@@ -92,6 +93,9 @@ If you don't think the police in the US is an out-of-control terrorist organizat
 - [Cops use horse to trample young woman](https://www.click2houston.com/news/local/2020/05/30/watch-video-captures-moment-police-horse-tramples-woman-during-houston-rally/)
 - [cop assaults protestor with his bike](https://twitter.com/ava/status/1266797973834395648?s=20)
 - [Compilation video from Gravel Institute](https://twitter.com/GravelInstitute/status/1266929927116468225)
+- [Woman shot in face with rubber bullet](https://twitter.com/MarajYikes/status/1267214957021523968?s=19)
+- [Police fire at peaceful protestor from a distance](https://v.redd.it/ajl7ebzll6251)
+
 
 ## White supremacy in the police
 
