@@ -4,7 +4,7 @@ If you don't think the police in the US is an out-of-control terrorist organizat
 
 
 
-# Donate to bail funds https://bailfunds.github.io/
+# [Donate to bail funds](https://bailfunds.github.io/)
 
 
 ## Attacks on journalists
