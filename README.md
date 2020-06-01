@@ -1,5 +1,7 @@
-If you don't think the police in the US is an out-of-control terrorist organization, I invite you to peruse the following links, all of which are from the last 48 hours
+If you don't think the police in the US is an out-of-control terrorist organization, I invite you to peruse the following links
 
+
+# Police brutality during the protests
 
 # Donate to bail funds https://bailfunds.github.io/
 
